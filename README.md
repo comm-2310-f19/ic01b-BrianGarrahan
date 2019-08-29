@@ -5,6 +5,13 @@
 1. I preferred to be called Brian
 
 
+1. My favorite videogame genre is "RPG"
+
+1. My favorite videogame is "Megaman"
+
+1. My favorite pokemon or videogame character is "pikachu"
+=======
+
 1. I'm taking this class because I want to learn digital media
 
 1. My favorite movie is **Ferris Bueller's Day Off**
