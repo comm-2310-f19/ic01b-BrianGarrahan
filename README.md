@@ -6,8 +6,8 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite videogame genre is "Action"
+1. My favorite videogame genre is "RPG"
 
-1. My favorite videogame is "MediEvil"
+1. My favorite videogame is "Megaman"
 
-1. My favorite pokemon or videogame character is "Sir Dan"
+1. My favorite pokemon or videogame character is "pikachu"
