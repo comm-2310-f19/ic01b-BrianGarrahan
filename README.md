@@ -10,7 +10,6 @@
 1. My favorite videogame is "Megaman"
 
 1. My favorite pokemon or videogame character is "pikachu"
-=======
 
 1. I'm taking this class because I want to learn digital media
 
